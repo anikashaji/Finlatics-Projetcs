@@ -1,1 +1,1 @@
-# Finlatics-Projetcs
+# Finlatics-Projects
